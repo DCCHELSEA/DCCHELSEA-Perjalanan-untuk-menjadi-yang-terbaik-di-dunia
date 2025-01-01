@@ -14,3 +14,5 @@ hari ini saya kalah memainkan mobile legend berkali-kali , serta saya belajar ma
 <hr>
 
 <img src="ls.jpeg" width="800">
+
+<strong> doakan besok saya bisa mencapai form terbaik saya </strong>
