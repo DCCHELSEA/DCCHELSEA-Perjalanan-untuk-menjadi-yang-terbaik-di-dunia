@@ -13,4 +13,4 @@ hari ini saya kalah memainkan mobile legend berkali-kali , serta saya belajar ma
 
 <hr>
 
-<img src="Prestasiku_hari_ini.jpeg" width="800">
+<img src="Lose_streak_saya.jpeg" width="800">
