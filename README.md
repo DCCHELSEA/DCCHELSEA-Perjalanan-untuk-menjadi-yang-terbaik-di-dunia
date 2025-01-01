@@ -7,4 +7,4 @@ saya baru mencoba hal ini pertama kali dan saya baru mempelajari sangat sedikit 
 <hr>
 
 <strong> Wish me luck Guys 😁😁😁😁 </strong> 
-
+<img src="chibi.gif" width="800">
