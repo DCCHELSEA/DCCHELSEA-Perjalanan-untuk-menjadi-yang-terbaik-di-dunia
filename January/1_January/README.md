@@ -9,3 +9,8 @@ hari ini saya kalah memainkan mobile legend berkali-kali , serta saya belajar ma
 <strong> tetap semangat dan pantang menyerah </strong>
 
 <hr>
+<img src="Prestasiku_hari_ini.jpeg" width="800">
+
+<hr>
+
+<img src="Prestasiku_hari_ini.jpeg" width="800">
