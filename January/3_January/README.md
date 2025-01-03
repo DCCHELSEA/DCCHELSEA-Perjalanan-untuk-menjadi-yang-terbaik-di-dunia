@@ -2,7 +2,7 @@
 
 <hr>
 
-<p> <h1> sekarang penggunaan hp di sekolah ku dibatasi banget jadi semakin sedikit peluang buat main atau belajar saat istirahat , aplikasi nya bikin disiplin sih tapi kayak membatasi gitu 😭😭 </p> </h1>
+<p> <h3> sekarang penggunaan hp di sekolah ku dibatasi banget jadi semakin sedikit peluang buat main atau belajar saat istirahat , aplikasi nya bikin disiplin sih tapi kayak membatasi gitu 😭😭 </p> </h2>
 
 <hr>
 
