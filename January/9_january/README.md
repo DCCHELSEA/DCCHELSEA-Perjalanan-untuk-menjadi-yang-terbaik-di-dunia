@@ -1,0 +1,1 @@
+Beliau Ketiduran Sih, Jadi Aku Cuma Mau Bantu Mertahanin Streaknya, Semangat
