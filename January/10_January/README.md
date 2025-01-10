@@ -1,0 +1,1 @@
+diisi besok hehe soalnya sudah malam ini tadi sudah belajar banyak tapi hehe
