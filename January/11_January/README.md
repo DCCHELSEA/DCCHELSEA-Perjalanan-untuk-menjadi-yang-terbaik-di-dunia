@@ -1,0 +1,1 @@
+diisi besok lagi soalnya waktunya kurang , akan ku jelaskan besok
