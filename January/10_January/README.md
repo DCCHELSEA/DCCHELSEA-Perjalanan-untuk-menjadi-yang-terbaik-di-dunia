@@ -2,4 +2,4 @@
 
 <hr>
 
-jadi kalau ada hal buruk yang kita tetap pertahankan lebih baik jangan ya , dan selalu imporove untuk hari esok 🔥🔥🔥
+jadi kalau ada hal buruk yang kita tetap pertahankan lebih baik jangan ya , dan selalu improve untuk hari esok 🔥🔥🔥
