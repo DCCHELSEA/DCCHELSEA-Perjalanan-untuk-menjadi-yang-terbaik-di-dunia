@@ -1,1 +1,0 @@
-biar tidak lose
